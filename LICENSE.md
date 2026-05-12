@@ -1,4 +1,4 @@
-#  
+#  Experience oil empire like never before with vip Scripts for oil empire, the #1 Script. Includes fly and teleport for unbeatable performance.
 
 
 
